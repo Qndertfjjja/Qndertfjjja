@@ -49,7 +49,7 @@ I'm open to collaborating on projects related to:
 ---
 
 ## 😄 Pronouns  
-He/Him  
+She/Her  
 
 ---
 
